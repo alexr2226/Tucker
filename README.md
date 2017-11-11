@@ -1,0 +1,2 @@
+# Tucker
+Discord stuff 
